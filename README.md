@@ -47,7 +47,7 @@ I reserve the right to make changes to this policy. If significant changes occur
 
 9. Contact:
 
-If you have questions about this policy, please contact me at youremail@domain.com.
+If you have questions about this policy, please contact me at gsstudiogames@gmail.com.
 
 By continuing to play "The Runaway Run," you agree to this privacy policy.
 
